@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-<title> gelas me to 67 e arxidi??</title>
+gelas me to 67 e arxidi??
 </head>
 <body>
 <h1> ama ksanagelaseis tha se spasw</h1>
